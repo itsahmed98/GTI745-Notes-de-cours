@@ -1,1 +1,0 @@
-# GTI745-Notes-de-cours
